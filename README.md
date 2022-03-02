@@ -6,6 +6,6 @@
 
 • 🔍 I’m currently looking for an internship in Machine Learning Company 🏢 
 
-• 📫 How to reach me? via email - aleks.505@wp.pl or discord - Bread#5916  
+• 📫 How to reach me? via email - aleksy.b505@gmail.com or discord - Bread#5916  
 
 • 🎓 I'm still studying in technical college  
