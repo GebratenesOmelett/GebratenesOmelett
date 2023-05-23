@@ -8,4 +8,4 @@
 
 • 📫 How to reach me? via email - aleksy.b505@gmail.com or discord - Bread#5916  
 
-• 🎓 I'm still studying in technical school
+
