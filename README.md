@@ -2,9 +2,9 @@
 
 • 👀 I’m interested in programming 💻, books 📚 and music 🎵  
 
-• 🌱 I’m currently learning Python 🐍 and Machine Learning 👨 
+• 🌱 I’m currently learning Java
 
-• 🔍 I’m currently looking for an internship in Machine Learning Company 🏢 
+• 🔍 I’m currently looking for an internship in Java Company 🏢 
 
 • 📫 How to reach me? via email - aleksy.b505@gmail.com or discord - Bread#5916  
 
